@@ -1,0 +1,1 @@
+# wygaszacz_ekranu
